@@ -65,9 +65,9 @@ QCFI & Senslive Collaboration
 Prototype Development & Demo
 
 # 📞 Contact Us
-**Prof. Narrotam Dutt Upadhyay**
+**Prof. Bulbul Agrawal**
 Assistant Professor, Vikrant University, Gwalior (M.P.)
-Call: +91 9907059984
+Call: +91 9131502294
 
 # 🔗 Official Links
 Official Website:
